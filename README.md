@@ -1,6 +1,3 @@
-<a href="https://es.cooltext.com"><img src="https://images.cooltext.com/5584571.png" width="533" height="158" alt="LynlvsTae" /></a>
-<br />Image by <a href="https://es.cooltext.com">Cool Text: Free Logos and Buttons</a> - <a href="https://es.cooltext.com/Edit-Logo?LogoID=4047229824">Create An Image Just Like This</a>
-
 
 Holas ✨✨
 
@@ -27,3 +24,6 @@ Soy Jocelyn Montane ✨Joce✨ pa los amigos
 | 11:05-11:55 | Física        | Matemáticas   | ingles      | Ingles        | Historia    |
 | 12:00-12:50 | Matemáticas   | Ingles IV     | Comunidades | Física        |      -      |
 | 12:55-13:45 |       -       | Comunidades   | Comunidades | Matematicas   |      -      |
+
+<a href="https://es.cooltext.com"><img src="https://images.cooltext.com/5584571.png" width="533" height="158" alt="LynlvsTae" /></a>
+<br />Image by <a href="https://es.cooltext.com">Cool Text: Free Logos and Buttons</a> - <a href="https://es.cooltext.com/Edit-Logo?LogoID=4047229824">Create An Image Just Like This</a>
