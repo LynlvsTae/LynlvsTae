@@ -17,8 +17,6 @@ Soy Jocelyn Montane ✨Joce✨ pa los amigos
 - ☆ 김태형 ⋆ 𝗆𝗒 𝗰𝗲𝗹𝗲𝘀𝘁𝗶𝗮𝗹 𝖻𝗈𝗒،
 -  ⋆𝐭𝐚𝐞𝐡𝐲𝐮𝐧𝐠' 𝗆𝗈𝗇 𝗈𝗋𝖻𝗂𝗍𝖾 ᵕ̈
 <!---LynlvsTae/LynlvsTae is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-
 | Hora/Dia    | Lunes         | Martes        | Miercoles   | Jueves        | Viernes     |
 |-------------|---------------|---------------|-------------|---------------|-------------|
 | 7:00-7:50   | Mantenimieto  | Física        | Deporte     | Artes         | Biología    |
