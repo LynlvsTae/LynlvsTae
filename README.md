@@ -1,3 +1,5 @@
+<a href="https://es.cooltext.com"><img src="https://images.cooltext.com/5584571.png" width="533" height="158" alt="LynlvsTae" /></a>
+<br />Image by <a href="https://es.cooltext.com">Cool Text: Free Logos and Buttons</a> - <a href="https://es.cooltext.com/Edit-Logo?LogoID=4047229824">Create An Image Just Like This</a>
 
 Holas ✨✨
 
@@ -13,7 +15,7 @@ Soy Jocelyn Montane ✨Joce✨ pa los amigos
 - ७ ˒ 𝟫𝟩  ⿻  𝖊-𝖇𝖔𝖞 𝖏𝖐  ♥︎
 - ☆ 김태형 ⋆ 𝗆𝗒 𝗰𝗲𝗹𝗲𝘀𝘁𝗶𝗮𝗹 𝖻𝗈𝗒،
 -  ⋆𝐭𝐚𝐞𝐡𝐲𝐮𝐧𝐠' 𝗆𝗈𝗇 𝗈𝗋𝖻𝗂𝗍𝖾 ᵕ̈
-<!---LynlvsTae/LynlvsTae is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 | Hora/Dia    | Lunes         | Martes        | Miercoles   | Jueves        | Viernes     |
 |-------------|---------------|---------------|-------------|---------------|-------------|
 | 7:00-7:50   | Mantenimieto  | Física        | Deporte     | Artes         | Biología    |
@@ -24,6 +26,3 @@ Soy Jocelyn Montane ✨Joce✨ pa los amigos
 | 11:05-11:55 | Física        | Matemáticas   | ingles      | Ingles        | Historia    |
 | 12:00-12:50 | Matemáticas   | Ingles IV     | Comunidades | Física        |      -      |
 | 12:55-13:45 |       -       | Comunidades   | Comunidades | Matematicas   |      -      |
-
-<a href="https://es.cooltext.com"><img src="https://images.cooltext.com/5584571.png" width="533" height="158" alt="LynlvsTae" /></a>
-<br />Image by <a href="https://es.cooltext.com">Cool Text: Free Logos and Buttons</a> - <a href="https://es.cooltext.com/Edit-Logo?LogoID=4047229824">Create An Image Just Like This</a>
