@@ -1,6 +1,4 @@
-<a href="https://es.cooltext.com"><img src="https://images.cooltext.com/5584571.png" width="533" height="158" alt="LynlvsTae" /></a>
-<br />Image by <a href="https://es.cooltext.com">Cool Text: Free Logos and Buttons</a> - <a href="https://es.cooltext.com/Edit-Logo?LogoID=4047229824"
-                                                                                            
+
 Holas ✨✨
 
 Soy Jocelyn Montane ✨Joce✨ pa los amigos
